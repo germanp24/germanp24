@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola! 👋<br>Me llamo Germán y soy estudiante de Ingeniería Informática
+Hola! 👋
 
 
 ## 🌐 Socials:
